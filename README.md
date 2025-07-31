@@ -8,7 +8,7 @@ Created by: Halsted Craig Hannah
 
 
 🎬 Overview
-The Big Baby of San Francisco is a surreal, narrated animation blending hand-drawn illustration, cut-paper aesthetics, and original voiceover. It explores themes of societal neglect, class division, and performative activism through the metaphor of a massive baby abandoned by a small town and shipped off to San Francisco.
+TBBOSF is a surreal, narrated animation blending hand-drawn illustration, cut-paper aesthetics, and original voiceover. It explores themes of societal neglect, class division, and performative activism through the metaphor of a massive baby abandoned by a small town and shipped off to the big city
 
 ✍️ My Role
 Storyboard artist
@@ -31,7 +31,7 @@ Coming soon:
 🖌 Background paintings (PNG)
 📄 Animatic cut with SFX (MOV)
 💡 About Me
-I’m a seasoned storyboard artist and illustrator based in San Rafael, CA. I’ve worked with top-tier production companies, ad agencies, and entertainment clients for over 25 years. I specialize in visual storytelling with emotion, energy, and timing at the forefront — especially under pressure.
+I’m a seasoned storyboard artist and illustrator based in San Rafael, CA. I’ve worked with top-tier production companies, ad agencies, and entertainment clients for over 25 years. I specialize in visual storytelling with emotion, energy, and timing at the forefront, especially under pressure.
 
 ## 📬 Contact  
 📧 hchannah@mac.com  
