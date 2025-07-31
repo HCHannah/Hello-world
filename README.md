@@ -24,8 +24,8 @@ GarageBand (audio pass)
 Freeform (ideation board)
 Google Drive + GitHub (versioning and review)
 🗂 Sample Assets
-Coming soon:
 
+Coming soon:
 🎞 Storyboard panels (PDF)
 🎧 Voiceover track (MP3)
 🖌 Background paintings (PNG)
